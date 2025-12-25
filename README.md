@@ -19,6 +19,7 @@ I'm a curious mind who loves exploring the world of data and uncovering the stor
 ---
 
 ## 📫 Let’s Connect
+- 📫 How to reach me [yugtrivedi@gmail.com](mailto:ytrivedi561@gmail.com)
 - 💼 LinkedIn: https://www.linkedin.com/in/yug-trivedi-7252102b0/
 - 📁 GitHub: You’re already here 😊  
 
