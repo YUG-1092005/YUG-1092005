@@ -1,4 +1,5 @@
-<img width="1536" height="1024" alt="ChatGPT Image Dec 25, 2025, 11_39_46 AM" src="https://github.com/user-attachments/assets/71eaf1f2-db36-4887-9263-d29f3f73bb05" />
+<img width="1536" height="655" alt="ChatGPT Image Dec 25, 2025, 11_39_46 AM" src="https://github.com/user-attachments/assets/2a095fb9-9f6b-4b92-b844-60b818f2b18c" />
+
 # Hi 👋, I'm Yug Trivedi  
 
 Hey there! 👋  
