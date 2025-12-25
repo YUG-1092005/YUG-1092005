@@ -1,4 +1,4 @@
-![1000_F_107659836_ABSMFCHr6jcO2r59uPLMiryF5bowKKLL](https://github.com/user-attachments/assets/0256b997-16ae-4c87-b314-d294e8345afa)
+<img width="1536" height="1024" alt="ChatGPT Image Dec 25, 2025, 11_39_46 AM" src="https://github.com/user-attachments/assets/71eaf1f2-db36-4887-9263-d29f3f73bb05" />
 
 # Hi 👋, I'm Yug Trivedi  
 
