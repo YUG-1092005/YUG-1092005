@@ -15,6 +15,9 @@ I'm a curious mind who loves exploring the world of data and uncovering the stor
 - **Excel**
 - **SQL**
 - **Power BI**
+- **Python**
+- **MERN**
+- **Full Stack Development**
 
 ---
 
