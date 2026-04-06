@@ -1,3 +1,6 @@
+
+<img width="1500" height="500" alt="github_banner_resized" src="https://github.com/user-attachments/assets/c04908ef-9280-4b39-b296-29d7e44cddad" />
+
 ## 🌸 Hey there, glad you’re here!
 
 Welcome to my corner of GitHub ✨  
